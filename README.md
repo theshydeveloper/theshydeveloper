@@ -1,0 +1,3 @@
+- 👋 hi, i am @theshydeveloper
+- 👀 as my name suggests, i am kind of a shy person ...
+- 📫 my email is, as expected: theshydeveloper@gmail.com
